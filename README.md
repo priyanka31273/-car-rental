@@ -1,4 +1,4 @@
-Demo video link
+Project video link
 https://drive.google.com/file/d/12BMaKBn-47bgAwau1dwOcc31JEmNCpUa/view?usp=drive_link
 
 
